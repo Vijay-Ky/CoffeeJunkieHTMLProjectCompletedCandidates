@@ -8,6 +8,8 @@ Ms.Yamuna Y	yyamunaraju321@gmail.com
 Mr. Mallikanrjuna R 	malliroyals082@gmail.com
 Mr. Madhu M S	Madhums9071@gmail.com
 Ms. Maneesha M	msmaneesha03@gmail.com
-Ms.Mujassima Banu 	mujassimabanu31224@gmail.com
-Mr.Gurukiran	gurukirannaidu1@gmail.Com
+Ms. Mujassima Banu 	mujassimabanu31224@gmail.com
+Mr. Gurukiran	gurukirannaidu1@gmail.Com
 Mr. Shanthraj	sshanthraj68@gmail.com
+Ms. Soumya V G bsoumya324@gmail.com
+Ms. Priya H R priyahr987@gmail.com 
